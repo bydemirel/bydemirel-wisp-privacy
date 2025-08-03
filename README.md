@@ -1,1 +1,0 @@
-# bydemirel-wisp-privacy
